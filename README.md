@@ -1,0 +1,1 @@
+# Tienda-aguacates-responsive
